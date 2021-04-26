@@ -3,6 +3,6 @@
 ## Integrantes
 
 - Guevara Tanta Junior Ulises
-- 
+- Sulca Diaz Leonardo Augusto
 - 
 - 
